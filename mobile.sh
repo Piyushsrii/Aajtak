@@ -1,0 +1,1 @@
+mobile ban gaya
